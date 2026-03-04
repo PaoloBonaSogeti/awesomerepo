@@ -1,1 +1,1 @@
-# I am studying for AZ-400 certification!!
+# I am goint to pass exam AZ-400 certification!!
