@@ -1,1 +1,1 @@
-# I am goint to pass exam AZ-400 certification!!
+# I am going to pass exam AZ-400 certification!!
